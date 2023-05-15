@@ -1,1 +1,1 @@
-# yurii.knihnitskyi.github.io
+# yuriiknihnitskyi.github.io
